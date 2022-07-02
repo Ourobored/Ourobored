@@ -1,5 +1,13 @@
 ### Hi there 👋
-
+### I'm Ourobored
+### I’m currently working on not dying
+### I’m currently learning how to live
+### I’m looking to collaborate on not dying a shitty death
+### I’m looking for help with humaning
+### Ask me about nothing, I'm dumb
+### How to reach me: plz don't (this is a cry for help)
+### Pronouns it, its 
+### Fun fact: W8 I got this somewhere
 <!--
 **Ourobored/Ourobored** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
